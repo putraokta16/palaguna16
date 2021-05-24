@@ -1,0 +1,2 @@
+# palaguna16
+0x390cb16ad3941eae7f513bc92794839df43bb9e4 alamat ETH saya
